@@ -1,6 +1,6 @@
-check out my strawpage for info
-https://idialover69.straw.page/
-<img width="402" height="350" alt="tumblr_062333edacc06a6d28098bfa1a002a4b_4c1032d2_500" src="https://github.com/user-attachments/assets/53b8b3aa-5523-4cca-be4e-ced401a18903" />
+- check out my strawpage for info
+- https://idialover69.straw.page/
+- <img width="402" height="350" alt="tumblr_062333edacc06a6d28098bfa1a002a4b_4c1032d2_500" src="https://github.com/user-attachments/assets/53b8b3aa-5523-4cca-be4e-ced401a18903" />
 
 <!--
 **idialover69/idialover69** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
